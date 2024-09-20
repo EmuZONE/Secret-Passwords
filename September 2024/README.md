@@ -9,7 +9,7 @@ svengogol@t-online.de:Florian1</p>
 <p><a href="analvids.com">analvids.com</a></p>
 jamieogg1979@gmail.com:Rooney10</p>
  <br>
-<p><a href="alljapanesepass.com">alljapanesepass.com</a></p>
+<p><a href="https://alljapanesepass.com/login/?path=Lw">alljapanesepass.com</a></p>
 uuussseeerrr:mart1mic</p>
 apubtgkq5b:aha9cjup9s</p>
  <br>
